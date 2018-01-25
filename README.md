@@ -1,6 +1,6 @@
 # hw1
 **Шукурова Малика 174-1**
-#**Информация обо мне**
+              #**Информация обо мне**
 Здравствуйте, меня зовут Малика, я год тигра ![](https://s1.1zoom.ru/big0/729/Tigers_Painting_Art_Head_White_Glance_533926_1280x954.jpg).
 По знаку зодиака я рыбка ![](http://heaclub.ru/tim/c26c62736282b538aeffe48a7379377a/ribi-vosprinimayut-chuzhuyu-bedu-kak-svoyu.jpg). 
 Я из Узбекистана города Самарканд ![](https://s00.yaplakal.com/pics/pics_original/4/1/2/3203214.jpg).
