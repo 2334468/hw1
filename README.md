@@ -7,6 +7,7 @@
 ![](http://heaclub.ru/tim/c26c62736282b538aeffe48a7379377a/ribi-vosprinimayut-chuzhuyu-bedu-kak-svoyu.jpg) 
 Я из Узбекистана города Самарканд.
 ![](https://s00.yaplakal.com/pics/pics_original/4/1/2/3203214.jpg)
+
 В нашей семье трое детей, у меня есть старшая сестра и младший брат.
 ![](https://pp.userapi.com/c638816/v638816061/f8f4/tesUc4efZW4.jpg)
 Мы с сестрой учимся в НИУ ВШЭ.
