@@ -7,6 +7,6 @@
 В нашей семье трое детей, у меня есть старшая сестра и младший брат ![](https://pp.userapi.com/c638816/v638816061/f8f4/tesUc4efZW4.jpg)
 Мы с сестрой учимся в НИУ ВШЭ ![](http://studygu.ru/images/university/blazon/55df85b5965c2.jpg).
 У меня есть лучшая подруга ее зовут Фира ей 19 лет она тоже из Самарканда ![](https://pp.userapi.com/c840731/v840731388/4a602/Zq0w6Zcme80.jpg)
-Я стараюсь вести здоровый образ жизни 
+Я стараюсь вести здоровый образ жизни. Я три года работала в театре  [El Merosi](http://samcity.uz/catalog/item/teatr-istoricheskogo-kostyuma-el-merosi-el-merosi) 
 
 
