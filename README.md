@@ -19,8 +19,8 @@
 **У меня есть лучшая подруга, ее зовут Фира, ей 19 лет, она тоже из Самарканда.**
 ![](https://pp.userapi.com/c840731/v840731388/4a602/Zq0w6Zcme80.jpg)
 
-  Я стараюсь вести здоровый образ жизни. Я три года работала в театре [El Merosi](http://samcity.uz/catalog/item/teatr-istoricheskogo-kostyuma-el-merosi-el-merosi) название театра переводится как "Наследие народа". Так же я выступала на EXPO в Токио 
-[Japan](https://www.nippo.co.jp/eng/n-expo016/ne16_a.htm)
+  Я стараюсь вести здоровый образ жизни. Я три года работала в театре [El Merosi](http://samcity.uz/catalog/item/teatr-istoricheskogo-kostyuma-el-merosi-el-merosi "это просто **ВАУ**") название театра переводится как "Наследие народа". Так же я выступала на EXPO в Токио 
+[Japan](https://www.nippo.co.jp/eng/n-expo016/ne16_a.htm "ничего интересного")
 
 В свободное время я люблю:
 + смотреть фильмы  
