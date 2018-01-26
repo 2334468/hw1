@@ -64,5 +64,5 @@
 
 *Источник: сайт [НИУ ВШЭ](https://www.hse.ru/ba/philology/timetable?fromdate=2018.01.22&todate=2018.01.27&groupoid=7215&receiverType=3&timetable-courses=1&timetable-groups=7215)
 
-**Спасибо за внимание**
+# **Спасибо за внимание**
 
